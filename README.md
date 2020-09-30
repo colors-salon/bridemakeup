@@ -1,2 +1,2 @@
-# bridemakeup..githhub.io
+# bridemakeup.githhub.io
 brider makeup
