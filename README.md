@@ -1,2 +1,2 @@
-# bridemakeup.githhub.io
+# bridemakeup
 brider makeup
